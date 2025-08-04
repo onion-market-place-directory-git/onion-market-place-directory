@@ -135,4 +135,6 @@ Plase contribute and add stars to this repo.
 
 
 
-Update:  24.07.2025 12:09 Just to let you know, the link is active again.
+
+
+Update:  Monday 04 August 2025 url is back up and running
